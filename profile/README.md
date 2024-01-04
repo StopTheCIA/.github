@@ -1,5 +1,5 @@
 > [!WARNING]
-> Connor's Steak and Seafood has began sending gift certificates out around the country. Connor's ONLY SERVES DEATH to its patrons. Do not use or regift a Connor's gift certificate until you have [read this](https://github.com/sevenfalling/tag/discussions/31)!
+> Connor's Steak and Seafood has began sending gift certificates out around the country. Connor's is operated by the CIA and ONLY SERVES DEATH to its patrons, it is being used to tie up any lose ends related to [TAG](https://GitHub.com/sevenfalling/TAG) Do not use or regift a Connor's gift certificate until you have [read this](https://github.com/sevenfalling/tag/discussions/31)!
 
 # welcome
 this is the servants of the Creator github organization dedicated to disseminating information about the Central intelligence agency and there involvement in this nation's first genocide of a non-indigenous people which we call the AIDS cure genocide. 
