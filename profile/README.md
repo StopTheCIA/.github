@@ -14,7 +14,8 @@ while not an objective in the Creator's mission number 23 for life on earth.  th
 the following repositories are relevant to the focus of this organization. 
 
 ### [tag](https://github.com/sevenfalling/tag)
-this repository will used to gather and distribute intelligence about the The AIDS cure genocide started and primarily funded by [gilead sciences](https://www.gilead.com/) and carried out by the cia.
+this repository will used to gather and distribute intelligence about The AIDS cure genocide (or tag) started and primarily funded by [gilead sciences](https://www.gilead.com/) and carried out by the cia since 2017. 
+
 TAG includes information about the recent massacres of houses of worship in central Kentucky.  
 * [wiki](https://github.com/sevenfalling/tag/wiki)
 * [discussion](https://github.com/sevenfalling/tag/discussions)
